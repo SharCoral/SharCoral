@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SharCoral 
+- 👀 I’m interested in development on the Solana Blockchain
+- 🌱 I’m currently learning Move on Sui
+- 💞️ Contact me if you require Sniping Tools, Volume Bots and Bundler scripts 
+- 📫 How to reach me Contact me on Telegram @SharCoral if you require my services
+- ⚡ Fun fact: The firefox logo isn't a Fox 🦊 
